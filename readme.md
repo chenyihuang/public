@@ -26,3 +26,6 @@ STANWELL史丹威 VANILLA(香草) X1
 
 收件人
 黃澄儀 0935910308
+
+
+Rm. 803, No. 10, Aly. 30, Ln. 3, Sec. 5, Taiwan Blvd., Longjing Dist., Taichung City 434017, Taiwan (R.O.C.)
