@@ -29,3 +29,5 @@ STANWELL史丹威 VANILLA(香草) X1
 
 
 Rm. 803, No. 10, Aly. 30, Ln. 3, Sec. 5, Taiwan Blvd., Longjing Dist., Taichung City 434017, Taiwan (R.O.C.)
+https://drive.google.com/file/d/126zUIaQkXYKJGv7-YGsFcd7PHYdbFNqr/view?usp=sharing
+
